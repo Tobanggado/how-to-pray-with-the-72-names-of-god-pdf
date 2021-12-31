@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+<h1>How To Pray With The 72 Names Of God Pdf</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-pray-with-the-72-names-of-god-pdf/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">We Love As A Outcome Of God First Liked Us</a></li><li><a href="#toc-1">Words Of Faith, Hope & Love</a></li><li><a href="#toc-2">We're Here For The Church</a></li><li><a href="#toc-3">Father</a></li><li><a href="#toc-4">Wait In Silence For God To Speak For 10</a></li><li><a href="#toc-6">Iif  Partnering In The Physique Of Christ For Unity In Mission</a></li><li><a href="#toc-7">Archangel Raguel</a></li></ul></div>
+<p>As a end result, God’s individuals endure, Christ is dishonoured, and gospel mission is undermined. ‘Leadership training’ is the commonly-proposed priority solution. Indeed, leadership coaching programmes of all types have multiplied, but the issue stays, for 2 probable reasons. Where that host nation consists of Christian church buildings, we urge immigrant and indigenous church buildings collectively to listen and learn from each other, and to provoke co-operative efforts to reach all sections of their nation with the gospel.</p>
+<ul><li>Archangel Barachiel lets you maintain a positive outlook and has been given the duty of facilitating miracles on Earth.</li><li>We commit ourselves to such witness, for if we declare to like God we should share God’s greatest priority, which is that his name and his Word should be exalted above all things.</li><li>There are many males who cry out “glorify me,” and generally they even direct the cry to God underneath a more religious terminology.</li><li>They are intermediaries of divine will and every angel has a function.</li></ul>
+<p>I ought to quickly have subdued their enemies, and turned my hand against their adversaries. But my people wouldn't hearken to my voice; and Israel would none of me. There shall no strange god be in thee; neither shalt thou worship any strange god.</p>
+<h2 id="toc-0">We Love As A End Result Of God First Liked Us</h2>
+<p>They too have to be acknowledged, encouraged, and outfitted to rightly deal with the Word of God. Upholding human rights by defending religious freedom is not incompatible with following the greatest way of the cross when confronted with persecution. We must also distinguish between advocating the rights of individuals of other faiths and endorsing the truth of their beliefs. We can defend the liberty of others to consider and practise their faith with out accepting that religion as true. So referred to as ‘insider movements’ are to be found within a quantity of religions.</p>
+<div style='text-align:center'><iframe width='561' height='316' src='https://www.youtube.com/embed/x-eHCxMM3PI' frameborder='0' alt='how to pray with the 72 names of god pdf' allowfullscreen></iframe></div>
+<p>For because the heaven is high above the earth, so nice is his mercy toward them that concern him. For my days are consumed like smoke, and my bones are burned as an fireplace. The heavens declare his righteousness, and all the individuals see his glory. They shall bear thee up in their arms, lest thou sprint thy foot towards a stone. Thou hast set up the right hand of his adversaries; thou hast made all his enemies to rejoice.</p>
+<h3 id="toc-1">Words Of Religion, Hope & Love</h3>
+<p>The majority of those reside in the least developed countries, and are among the poorest of the poor. Although bodily or mental impairment is half of their day by day experience, most are additionally disabled by social attitudes, injustice and lack of entry to sources. Serving folks with disabilities does not cease with medical care or social provision; it involves fighting alongside them, those that care for them and their families, for inclusion and equality, both in society and within the Church.</p>
+<h2 id="toc-2">We're Here For The Church</h2>
+<p>This lack of historic evidence is on no account an indication that it is not true or powerful. One factor we do know for sure is that the names are highly effective. People from all over the world and from all walks of life have used these names to change their lives. For Illustrative functions I will present you the way a variety of the seventy two names of god guardian angles, that are derived from the three Hebrew passages. Names within the historical world did extra than simply distinguish one individual from another, they usually conveyed the important nature and character of an individual. This is very true when it comes to the names of God recorded in the Bible.</p>
+<h3 id="toc-3">Father</h3>
+<p>Jeremiah could probably be called the praying prophet as well as the weeping prophet. Genuine love should have an object outdoors of itself to love; subsequently love existed between the Persons of the Godhead before anything was created. The Triune nature of God is a not only Scripturally correct, it's a logical necessity given what we all know of God through His revealed Word. Jesus prays to be with His folks, and for them to see His glory. This reminds us of the significance of unity and love amongst Christians. It is as if Jesus gave the world permission to doubt each His mission and His love if the world doesn't see unity and love among believers.</p>
+<h2 id="toc-4">Wait In Silence For God To Speak For 10</h2>
+<p>I love the LORD, because he hath heard my voice and my supplications. From the rising of the solar unto the happening of the identical the LORD's name is to be praised. He hath dispersed, he hath given to the poor; his righteousness endureth for ever; his horn shall be exalted with honour.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-pray-with-the-72-names-of-god-pdf/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>It is a praiseworthy practice for the bread and wine to be presented by the devoted. They are then accepted at an acceptable place by the Priest or the Deacon to be carried to the altar. Even though the trustworthy now not convey from their own possessions the bread and wine supposed for the liturgy as was once the case, however the ceremony of carrying up the offerings still retains its spiritual efficacy and significance.</p>
+<h2 id="toc-6">Iif  Partnering In The Physique Of Christ For Unity In Mission</h2>
+<p>Happy is he who enters into the blessed houses; for within the bad ones there is not a rest, nor returning. “He who does hurt to a human soul creates harm for his personal soul, and there's for him no therapeutic of his flesh, nor any forgiveness for eternity. •|And| he who does any sort of hurt in any way to any type of animal in secret, it is an evil customized, and he acts lawlessly along with his own soul. |For| all these things in the balances and exposed in the books on the nice judgment day. Cursed – who disturbs those who are peaceful by means of love. •For every sort of spirit glorifies him and every type of creature, visible and invisible, |praises |.</p>
